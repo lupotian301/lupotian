@@ -1,6 +1,6 @@
 # www.luboav1.com
  最新地址发布
-永 久 域 名www.luboav1.com
+永 久 域 名www.2222av.com
 ⭐️ 👉 地址一 ：https://www.luboav1.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
