@@ -3,7 +3,7 @@
 永 久 域 名www.lupotian.com
 
 
-⭐️ 👉 地址一 ：https://www.luboav1.com
+⭐️ 👉 地址一 ：https://m.luboav1.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
